@@ -1,6 +1,6 @@
 # Amit Joshi
 
-**Senior Product Owner · Data Analytics · BCG**  
+**Data Integration Manager · BCG**  
 Delhi NCR · [LinkedIn](https://linkedin.com/in/amit-joshi-045354b2) · joshiamit723@gmail.com
 
 ---
